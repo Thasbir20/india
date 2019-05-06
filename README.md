@@ -1,2 +1,2 @@
 # india
-they both are going to play q1
+they both are going to play game
